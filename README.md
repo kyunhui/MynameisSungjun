@@ -1,5 +1,4 @@
-### My name is Sungjun
-## Kookmin Univ
+### Kookmin Univ
 > 20203143 😹
 
 | 나는 | 문어 |
